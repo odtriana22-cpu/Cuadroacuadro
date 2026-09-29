@@ -1,0 +1,2 @@
+# Cuadroacuadro
+Proyecto artístico-filosófico
